@@ -1,0 +1,1 @@
+#"Being weak is nothing to be ashamed of..." — Fuegoleon Vermillion
